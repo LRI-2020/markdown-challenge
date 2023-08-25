@@ -7,7 +7,7 @@
 
 <img src="lri3_inside.jpg" width="128"/>
 
-### Bavarde / Maladroite / Têtue / Née stressée
+### Chatterbox / Clumsy / stubborn / worrywart
 
 |                    |       |   
 |--------------------|------------|
