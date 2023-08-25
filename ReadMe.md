@@ -9,7 +9,7 @@
 
 ### Chatterbox / Clumsy / stubborn / wired to worry
 
-|                    |       |   
+|Questions|Answers|   
 |--------------------|------------|
 | Birthday           | 21/11      |   
 | Favorite Color     | Light Pink |  
