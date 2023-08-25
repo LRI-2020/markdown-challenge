@@ -7,7 +7,7 @@
 
 <img src="lri3_inside.jpg" width="128"/>
 
-### .Net enthusiast; Highly motivated to improve my development skills and become a junior developer.
+### Bavarde / Maladroite / Têtue / Née stressée
 
 |                    |       |   
 |--------------------|------------|
