@@ -14,7 +14,7 @@
 | Birthday           | 21/11      |   
 | Favorite Color     | Light Pink |  
 | Favorite Food      | Chocolate  |  
-| Pineapple On Pizza | &#9745 |   
+| Pineapple On Pizza | &#9745;    |   
 
 ### Hobbies
 
