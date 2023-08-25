@@ -7,7 +7,7 @@
 
 <img src="lri3_inside.jpg" width="128"/>
 
-### Chatterbox / Clumsy / stubborn / worrywart
+### Chatterbox / Clumsy / stubborn / wired to worry
 
 |                    |       |   
 |--------------------|------------|
