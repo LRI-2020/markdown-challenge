@@ -32,7 +32,7 @@ Always ready to try to help when needed, either for a technical problem or if yo
 
 ### A funny story
 
-Well I am a really clumsy person. Some years ago, I managed to let a knife fell on the foot of my husband ... That was hopefully not a so serious injury but still, we had to go to the emergency. The doctor and nurses were really laughing at us.
+Well I am a really clumsy person. Some years ago, I managed to let a knife fell on the foot of my husband (by accident, I swear :grimacing:) That was hopefully not a so serious injury but still, we had to go to the emergency. The doctor and nurses were really laughing at us.
 We are still married today so I suppose he is not too much resentful about that...
 
 #### TL;DR
